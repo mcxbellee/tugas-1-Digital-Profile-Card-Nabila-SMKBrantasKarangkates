@@ -1,0 +1,1 @@
+https://vercel.com/nabila-ffcd/tugas-1-digital-profile-card-nabila-smkbrantaskarangkates
